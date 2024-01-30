@@ -1,2 +1,2 @@
 # F13
-Friday the 13th Unoffical
+Everything *Friday the 13th*. News, Trivia and more.
